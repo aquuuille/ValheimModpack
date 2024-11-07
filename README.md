@@ -1,6 +1,8 @@
 # ValheimModpack
 Сделано для Elysium
 
+https://discord.gg/a5JYHH4TDQ
+
 
 Инструкция:
 
